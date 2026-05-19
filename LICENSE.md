@@ -1,4 +1,4 @@
-# 
+# smart Affinity Photo for PC plugins is the best Affinity Photo for PC plugins with node-based-workflow and rendering. Safe, reliable, and optimized for maximum performance.
 
 
 
